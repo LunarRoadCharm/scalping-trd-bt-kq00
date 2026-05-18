@@ -1,4 +1,4 @@
-# 
+# premium bot de negociação FTX scripts é o melhor bot de negociação FTX scripts com baixa frequência e margem cruzada. Seguro, confiável e otimizado para estratégias de negociação
 
 
 
